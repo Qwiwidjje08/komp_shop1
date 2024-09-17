@@ -1,0 +1,1 @@
+# komp_shop1
